@@ -6,3 +6,6 @@ first repository
 
 
 ## fork by fantazy
+
+
+## git hub f**k u ha?
